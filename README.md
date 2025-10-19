@@ -27,4 +27,6 @@ ChromaKey Activator - это современное решение для упр
 | Windows 10 | Pro, Home | ✅ Полная поддержка |
 | Windows 8.1 | Pro | ✅ Полная поддержка |
 | Windows 7 | Professional | ✅ Базовая поддержка |
+<img width="1102" height="638" alt="image" src="https://github.com/user-attachments/assets/e4346e3e-f2e5-4485-a03d-e2067808d3a6" />
+<img width="1101" height="637" alt="image" src="https://github.com/user-attachments/assets/e716b1ac-e420-4f19-9236-1ef45c8c255e" />
 
